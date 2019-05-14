@@ -1,3 +1,3 @@
 # IvnaDutra_VI01
 
-![VI_01](https://user-images.githubusercontent.com/48916663/57695163-eafea280-7623-11e9-9ca4-2649740d146e.PNG)
+![VI_01](https://user-images.githubusercontent.com/48916663/57700271-ffe13300-762f-11e9-9014-20c5694477b6.PNG)
